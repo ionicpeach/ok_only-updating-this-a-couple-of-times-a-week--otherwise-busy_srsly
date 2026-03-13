@@ -4,6 +4,8 @@
 
 ![img](a-little-infographic-i-just-made.png)
 
+* I had a prof at rutgers who use to talk about how there are ppl in academia that get stuck chasing prestige and its sad to watch, WELP I GUESS something came of that degree, i learned that and i could put that anecdote to good use to recognize things
+
 i took those plant classes bc i thought one day id work on climate change and bioinfo, but nope -> but my zero emission electric car, that's how ill pay that forward, that's it with that i guess
 
 # The Strokes: "I should've worked much harder, I should've just not bothered"

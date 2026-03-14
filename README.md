@@ -8,7 +8,7 @@
 
 i took those plant classes bc i thought one day id work on climate change and bioinfo, but nope -> but my zero emission electric car, that's how ill pay that forward, that's it with that i guess
 
-# The Strokes: "I should've worked much harder, I should've just not bothered"
+# The Strokes: "I should've worked much harder, I should've just not bothered" -> i dunno but this is a better way of thinking https://www.instagram.com/reel/DVzHiwWGLu3/
 
 # I should have majored in finance, nothing really came out of this whole thing
 

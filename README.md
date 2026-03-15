@@ -13,3 +13,5 @@ i took those plant classes bc i thought one day id work on climate change and bi
 # I should have majored in finance, nothing really came out of this whole thing
 
 im busy today, i have to read something but tomorrow i have to go out and get flowers for someone so maybe ill wear pink for the flower shop
+
+im going to work on some vibe coding projects this week ive decided
